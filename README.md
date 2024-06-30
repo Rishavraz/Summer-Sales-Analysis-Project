@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Rishavraz
+# 👋 Hi, I’m @Rishavraj
 
 Welcome to my GitHub profile! Here’s a bit about me:
 
